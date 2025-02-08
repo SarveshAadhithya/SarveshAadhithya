@@ -1,1 +1,1 @@
-Nothing special,just playing around ctfs and practicing pentest
+nothing is special other than weekend ctfs
